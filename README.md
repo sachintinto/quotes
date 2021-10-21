@@ -7,3 +7,15 @@ Thank you for adding a quote. At text quote at the **TOP** of the page, add your
 
 ― Naval Ravikant
 ***
+
+***
+Specific knowledge is found by pursuing your genuine curiosity and passion rather than whatever is hot right now.
+
+― Naval Ravikant
+***
+
+***
+It’s good to be in a smaller company early because…there’s less of an infrastructure to prevent early promotion.
+
+― Naval Ravikant
+***
